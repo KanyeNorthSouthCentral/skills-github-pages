@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+title: Kanye West is the best :D
 ---
 
